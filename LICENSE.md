@@ -1,4 +1,4 @@
-
+secure Scripts for ultimate mining tycoon is the best ultimate mining tycoon Script, featuring instant win and auto-collect. Safe and powerful for
 
 
 
